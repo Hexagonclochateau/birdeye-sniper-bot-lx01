@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with automatic birdeye sniper bot | dex-sniping + front-running. Featuring dex-sniping and front-running, it's the best choice for automated
 
 
 
